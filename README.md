@@ -1,5 +1,7 @@
-> *Gabriel A. Muñiz Negrón*\
-> *gmuniz@ieee.org*\
+> *Gabriel A. Muñiz Negrón*
+>
+> *gmuniz@ieee.org*
+>
 > *(787) 948-8296*
 
 ---
